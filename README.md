@@ -8,12 +8,13 @@ Entry for the make.fun bounty [Promote make.fun's make-your-own-bounty post on X
 
 ## The post
 
-One post of my own on X from [@takiwanx](https://x.com/takiwanx), quoting make.fun's post https://x.com/makefunai/status/2124915864336236646, with a photo of its own (`post-photo.png`) attached. Its text says what bounty I would make first — $5 for the best GTA 6 sick-day excuse — and asks readers to reply with theirs.
+One post of my own on X from [@takiwanx](https://x.com/takiwanx), quoting make.fun's post https://x.com/makefunai/status/2124915864336236646, with a photo of its own (`post-photo.png`) attached. Its text says what bounty I would make first — $5 for the best text my fridge would send me at midnight — and asks readers to reply with theirs.
 
 The exact post text:
 
-> My first bounty: $5 for the best GTA 6 sick-day excuse. Winner gets paid, my boss gets a note.
-> What's yours? Reply below.
+> My first bounty: $5 for the best text my fridge would send me at midnight.
+> Mine: 'put the cake down.'
+> What would yours say? Reply below.
 > Make your own bounty on @makefunai: https://make.fun/sponsor/new
 > makefun-sugar-igloo-almond
 
